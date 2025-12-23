@@ -19,6 +19,7 @@ A vampire as old as time walks the neon-lit streets, hiding from those who would
 ### Upcoming: Tales of Father Malrik Holt
 Father Malrik Holt faces a land of magic, ancient curses, and heroic quests. Epic adventure and moral dilemmas await in this fantasy tale.  
 [Amazon] (https://www.amazon.com/Tales-Father-Malrik-Holt-Burlock/dp/B0FQWTD1HP/ref=sr_1_1?crid=2VR7HTYJAU8NM&dib=eyJ2IjoiMSJ9.53-zWNY3kRwoOYmcoQTzYw.t74KE0tYvqawoJRlpRwSO202hM8LB0q07GUGkq1TM0M&dib_tag=se&keywords=eric+burlock&qid=1766457184&sprefix=%2Caps%2C102&sr=8-1)
+
 [B&N] (https://www.barnesandnoble.com/w/tales-of-father-malrik-holt-eric-burlock/1148463632?ean=9798260378212)
 
 ---
